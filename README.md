@@ -1,2 +1,0 @@
-# rezoadezo.github.io
-website
